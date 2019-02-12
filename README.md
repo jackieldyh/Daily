@@ -1,0 +1,2 @@
+# Daily
+To memorize
